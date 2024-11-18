@@ -21,3 +21,4 @@
 | ![](https://avatars.steamstatic.com/fef49e7fa7e1997310d705b2a6158ff8dc1cdfeb.jpg) | 771059763 | [76561199483301091](https://steamcommunity.com/profiles/76561199483301091/) | ✅           | 2023-11-12 12:40:48 |                |          |
 | ![](https://avatars.steamstatic.com/fef49e7fa7e1997310d705b2a6158ff8dc1cdfeb.jpg) | wfkfkbx   | [76561199547730498](https://steamcommunity.com/profiles/76561199547730498/) | ✅           | 2023-11-20 11:34:37 |                |          |
 | ![](https://avatars.steamstatic.com/cd84705586745b1557e5dea0f4ad8b4c11472754.jpg) | 扳手游戏实况    | [76561199394002093](https://steamcommunity.com/profiles/76561199394002093/) | ✅           | 2024-07-23 03:07:21 |                |          |
+| ![](https://avatars.steamstatic.com/fef49e7fa7e1997310d705b2a6158ff8dc1cdfeb.jpg) | FBRARAN   | [76561199058521794](https://steamcommunity.com/profiles/76561199058521794/) | ✅           | 2024-11-17 14:06:27 |                |          |
